@@ -1,38 +1,37 @@
-## 𝐼ntro .ᐟ
+## MY intro! ^_^
 
-I AM STARZ. you can also call me soda if you'd like!
+i go by `starz` and `soda`, but i mainly go by starz!! call me soda if you want 2, though.
 
-˙✶༘ ╰┈➤ 𝐼 use he/they/it .
+i'm trans (ftm)
 
- i am also trans! ^q^
+i'm also multifandom! (my main fandoms are listed somewhere...👀👀👀 ouhh shii👀👀👀)
 
-## 𐔌 𝙼𝙰𝙸𝙽 𝙵𝙰𝙽𝙳𝙾𝙼𝚂: 𐦯 ˙⌑  .𖥔
+## ✉️
 
-- ᑲlock tales
+`pronouns: he/they/it (please don't get my pronouns wrong)` (i go by any pronouns besides she/her, and yes, you can use xenopronouns if you're referring to me!)
 
-- ᥒoob mayhem
+`main fandoms (listed below)`
 
-- ძie of death
 
-- ᥎ocaloid
+block tales,
 
-- ძeltarune
+south park,
 
-- ᥙndertale
+undertale,
 
-- 𝗍ouhou (my most recent fandom i joined)
+deltarune,
 
-- roblox admins (i don't int w/ the community).
- 
-   ⏝⏝⏝⏝⏝
+dandy's world,
 
-## 𝓜y DNᏆ lᎥst. ᰔ
+vocaloid,
 
-- proshippers & darkshippers.
-- predators/pedophiles. hvy dni.
-- monstermagic shippers. hvy dni too.
-- fans from any problematic media/fandoms.
-- ignorant people.
+utau,
+
+and lastly, synthv.
+
+## !!
+
+this remade intro is still a wip.
 
 <!--
 **cutie-mew-mew-magic/cutie-mew-mew-magic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
